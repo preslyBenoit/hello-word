@@ -1,1 +1,3 @@
 # hello-word
+I like to go to the beach with my friends and family........
+Today was the best day ever done.
